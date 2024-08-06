@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am final year student with degree in Computer Science from Savitribai Phule Pune University.Throughout my academic career I have developed a passion of designing and have completed some projects and coursework related to this field.I am a quick learner and have strong communication skills which i believe will allow me to excel in any role. I'am a team player, but also enjoying working independently to achieve my goals
+I am graduate with degree in Computer Science from Savitribai Phule Pune University.Throughout my academic career I have developed a passion of designing and have completed some projects and coursework related to this field.I am a quick learner and have strong communication skills which i believe will allow me to excel in any role. I'am a team player, but also enjoying working independently to achieve my goals
 
 
 ## 🌐 Socials:
